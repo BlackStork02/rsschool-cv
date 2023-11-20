@@ -1,1 +1,1 @@
-# rsschool-cv
+https://BlackStork02.github.io/rsschool-cv/cv
